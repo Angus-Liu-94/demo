@@ -8,3 +8,5 @@ idea -version
 I come back！！！！！
 再次大声呼喊我回来了！
 第三次呼喊！
+我还没刷牙 ！！！！
+我想玩CF！！！！gogo！！！！！
